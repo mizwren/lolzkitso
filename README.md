@@ -18,7 +18,7 @@ I mostly post small builds, creations and (maybe) plugins on Roblox, and Mods fo
 - How to reach me: You can contact me on Pinterest if you have any concerns or questions on my work, or if you just
  wanna talk, that works too! :D
 
-- Pronouns: They/Them
+- Pronouns: He/Him
 
 # What Am I Working On Right Now?
 I am working on a Game for Roblox at the moment, no idea on when it releases lol
